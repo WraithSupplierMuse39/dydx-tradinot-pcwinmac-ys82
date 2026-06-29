@@ -1,4 +1,4 @@
-# 
+# احترافي dYdX bot التداول امتدادات for Mac OS | نهائي dYdX bot التداول امتدادات for PC Windows. Featuring مجموعات السيولة DEX and واجهة برمجة التطبيقات للتبادل اللامركزي — optimized for maximum performance.
 
 
 
